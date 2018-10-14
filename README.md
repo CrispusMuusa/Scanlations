@@ -1,0 +1,2 @@
+# Scanlations
+Manga Scanlations
